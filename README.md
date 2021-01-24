@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 
 - 👯 I’m looking to collaborate on creative websites.
 
-- 📫 How to reach me: joshkoswara1429@gmail.com
+- 📫 How to reach me: joshkoswara1429@gmail.com and https://www.linkedin.com/in/joshua-koswara-478298184/?originalSubdomain=au
 
 
 
